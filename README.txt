@@ -25,9 +25,3 @@ SETUP INSTRUCTIONS:
 
 CONTACT
 EMAIL: collinsmbwika10@gmail.com
-Twitter: colonelcollins
-FB: collins.dominic1
-IG: CollinsMbwika
-Github: github.com/mbwika 
-
-Thanks! subscribe...
